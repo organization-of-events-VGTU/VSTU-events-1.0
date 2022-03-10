@@ -1,0 +1,1 @@
+# VSTU-events-1.0
